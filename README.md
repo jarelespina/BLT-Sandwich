@@ -1,0 +1,1 @@
+The recipe is for a classic BLT sandwich. This recipe is an excellent and pretty easy choice when deciding what to make for lunch. It's fast, relatively simple, and will surely satisfy your hunger and tastebuds. I hope you enjoy.
